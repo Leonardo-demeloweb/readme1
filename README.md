@@ -31,10 +31,3 @@ protótipo do canal de tv web desenvolvido para a thinktank brasil https://www.f
 
 motion design thinktank brasil https://www.facebook.com/leonardo.demelo/videos/10201627880410859/?l=5777276428433584671
 
-identidade visual thinktank brasil em anexo.
-peças gráficas criadas para as festas em lagos/ poPortugal em anexo.
-currículo com descrição das tecnologias e áreas de atuação em anexo.
-
- 
-att.,
-léo
